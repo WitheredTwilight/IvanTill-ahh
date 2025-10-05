@@ -1,16 +1,13 @@
-## Hi there 👋
+<p align="center"> Main OC Introduction </p>
 
-<!--
-**WitheredTwilight/WitheredTwilight** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center"> If you know me, no you don't. </p>
+<p align="center">
+<img src="https://i.pinimg.com/736x/74/23/be/7423be13a14df947bbf77f87cdad67d8.jpg" width="250" />
+</p>
+<p align="center"> Old design - will remake later! </p>
 
-Here are some ideas to get you started:
+<p align="center"> Name: Hanzu </p>
+<p align="center"> Half halovian + half dragon = Hybrid </p>
+<p align="center"> Male , he/him , 6000+ years old</p>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center"> Will make a strawpage for this dude soon :P AND art dumps, ofc! </p>
