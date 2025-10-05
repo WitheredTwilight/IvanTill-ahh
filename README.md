@@ -1,13 +1,12 @@
-<p align="center"> Main OC Introduction </p>
 
-<p align="center"> If you know me, no you don't. </p>
 <p align="center">
-<img src="https://i.pinimg.com/736x/74/23/be/7423be13a14df947bbf77f87cdad67d8.jpg" width="250" />
+<img src="https://i.pinimg.com/736x/f8/21/23/f821239a3a42808c3d938535278de79d.jpg" width="450" />
 </p>
-<p align="center"> Old design - will remake later! </p>
 
-<p align="center"> Name: Hanzu </p>
-<p align="center"> Half halovian + half dragon = Hybrid </p>
-<p align="center"> Male , he/him , 6000+ years old</p>
+<p align="center"> hi </p>
 
-<p align="center"> Will make a strawpage for this dude soon :P AND art dumps, ofc! </p>
+<p align="center">
+<img src="https://i.pinimg.com/736x/c6/eb/93/c6eb93d5fd93e0c04b42c50a6ba1f4b9.jpg" width="450" />
+</p>
+
+<p align="center"> I'm Jirou </p>
