@@ -9,5 +9,6 @@
 <p align="center"> VOLUME: ▁▂▃▄▅▆▇ 100% </p>
 
 <p align="center">
-<img src="https://i.pinimg.com/736x/c6/eb/93/c6eb93d5fd93e0c04b42c50a6ba1f4b9.jpg" width="450" />
+<img src="https://i.pinimg.com/1200x/6e/65/81/6e6581a1097218d04ec73b6ab9210690.jpg" width="450" />
 </p>
+<p align="center"> 鸣 (@yan700272001) on X </p>
