@@ -11,6 +11,6 @@
 <p align="center"> VOLUME: ▁▂▃▄▅▆▇ 100% </p>
 
 <p align="center">
-<img src="https://i.pinimg.com/736x/21/c3/89/21c3893ce3f77d4feebc57d9c5f9dfb0.jpg" width="450" />
+<img src="" width="450" />
 </p>
-<p align="center"> I had to use a reference because my mind have already been blown up from the ANATOMY. </p>
+<p align="center"> nothing atm. </p>
