@@ -19,6 +19,12 @@
 
 *****
 
+<p align="center"> 🧡🧡🧡🧡🧡🧡🧡🧡🧡🧡 </p>
+<p align="center"> 💛💛💛💛💛💛💛💛💛💛 </p>
+<p align="center"> 🤍🤍🤍🤍🤍🤍🤍🤍🤍🤍 </p>
+<p align="center"> 🩵🩵🩵🩵🩵🩵🩵🩵🩵🩵 </p>
+<p align="center"> 💙💙💙💙💙💙💙💙💙💙 </p>
+
 <p align="center"> Learn how to respect before deciding to interact with me, Thank you! </p>
 <p align="center"> I don't care what ships you love unless ILLEGAL.
 <p align="center"> Doubles are on thin ice but, PLEASE never feel superior about it on yourself. </p>
